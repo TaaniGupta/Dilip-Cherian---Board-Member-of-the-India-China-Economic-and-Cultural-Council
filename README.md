@@ -1,0 +1,2 @@
+# Dilip-Cherian---Board-Member-of-the-India-China-Economic-and-Cultural-Council
+Dilip Cherian serves on the Boards of the India-China Economic and Cultural Council, One Laptop Per Child, Charkha, the JIVA Institute, and the National Institute of Design and is a member of the Communication for Social Change Consortium, the Ministry of Company Affairs, the Central Board of Film Certification, and the Advertising Standards Council of India.
